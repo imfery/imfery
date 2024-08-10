@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @imfery
 - 👀 I’m currently working at tiket.com
-- 📫 Reach me through emailferyy@gmail.com / https://linkedin.com/in/fery130
+- 📫 Reach me through emailferyy@gmail.com / https://linkedin.com/in/fery1303
