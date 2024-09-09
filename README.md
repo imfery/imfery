@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @imfery
-- 👀 I’m currently working at tiket.com
+- 👀 I’m currently working at tiket.com as QA Engineer
 - 📫 Reach me through emailferyy@gmail.com / https://linkedin.com/in/fery1303
